@@ -1,16 +1,14 @@
-## Hi there 👋
+·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝  ͝ ︶ ͝ ⏝ ͝ ︶ ͝  ͝ ︶ ͝ ⏝ ͝ ︶ ͝  ͝ ︶ ͝ ⏝ ͝ ︶ ͝  ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙
 
-<!--
-**vesperr37-cpu/vesperr37-cpu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+╰┈➤ 𖥻 ׁ ׅ ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ ! ﹒ ◡◡
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  𐔌  Jay  𓏵  Eli ⁺  ︵ ༺
+  𓂃  He , Him  ꕮ 
+Oshi  ︴Bisexual / Aroace 𑁥౿
+୨୧┈୨୧  oshi,, not yume !!  𓎢𓎟  ╱ I ִ ᰔ mohawk mark
+
+
+ִ ࣪ ˖ ࣪ - Oliver grayson,, mohawk mark,, rex splode,, damian wayne,, wally west < 3 ¦|
+
+BYE BYE.. And check out my strawpage 💕 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
