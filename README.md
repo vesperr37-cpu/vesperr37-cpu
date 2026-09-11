@@ -2,11 +2,10 @@
 
 
 
+
 <img width="2048" height="696" alt="1000061212" src="https://github.com/user-attachments/assets/f95f9564-ab55-48a2-8bea-7c048bc1c258" />
 
 
-
-<img width="2048" height="696" alt="1000061211" src="https://github.com/user-attachments/assets/a5cb9929-b158-426a-badf-7759426eddd3" />
 
 
 
